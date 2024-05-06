@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mandiravp
+- 👋 Hi, I’m Mandira V Priyadarshini
 - 👀 I’m interested in Technical Support Executive Role
 - 🌱 I’m currently learning AEM
 - 📫 iammandiravp@gmail.com
