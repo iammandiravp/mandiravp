@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mandira V Priyadarshini
-- 👀 I’m interested in Technical Support Executive Role
+- 👀 I’m interested in Technical Support
 - 🌱 I’m currently learning AEM
 - 📫 iammandiravp@gmail.com
 - 😄 Pronouns: She/Her
