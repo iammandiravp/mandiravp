@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mandira V Priyadarshini
 - 👀 I’m interested in Technical Support
-- 🌱 I’m currently learning AEM
+- 🌱 I’m currently working in TCS
 - 📫 iammandiravp@gmail.com
 - 😄 Pronouns: She/Her
 
